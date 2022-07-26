@@ -1,1 +1,1 @@
-![image]([https://raw.githubusercontent.com/ndoniyor/ndoniyor/main/Capture-removebg-preview-removebg-preview.png](https://raw.githubusercontent.com/ndoniyor/ndoniyor/main/9047c181-8edb-4849-8359-042ef4dd7f5c.png))
+![image](https://raw.githubusercontent.com/ndoniyor/ndoniyor/main/Untitled-1.png)
